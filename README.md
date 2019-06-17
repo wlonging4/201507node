@@ -1,2 +1,2 @@
 # 201507node
-团队协作
+learn some thing about trigger your ambitions
